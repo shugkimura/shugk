@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @shugkimura
+- 👋 Hi, I’m @shugkimur
 - 👀 I’m interested in Crypto!
 - 🌱 I’m currently learning Crypto!
 - 💞️ I’m looking to collaborate on Crypto!
